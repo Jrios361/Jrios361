@@ -66,10 +66,10 @@ Some of the areas I'm currently exploring:
 - 🎵 Big music lover! I own an MPC One and SP-404MKll, and I enjoy making my own music.
 - 🏓🏃🏀 Outside of tech, I enjoy playing pickleball, running, and basketball.
 - 📚 Always looking for opportunities to learn and improve
+- 🤝 Interested in connecting with people working in cybersecurity and GRC
   
 ---
 
 Thanks for stopping by! 👋
-- 🤝 Interested in connecting with people working in cybersecurity and GRC
 
-Thanks for stopping by!
+
